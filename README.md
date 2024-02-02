@@ -11,7 +11,7 @@
 
 - 📫 How to reach me: **erickmelovidal@gmail.com**
 
-- ⚡ Fun fact **I playing guitar**
+- ⚡ Fun fact **I play guitar**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
